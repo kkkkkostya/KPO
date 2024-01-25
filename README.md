@@ -1,3 +1,1 @@
-# KPO
 
-## Homework KPO
